@@ -6,10 +6,10 @@
 #### 6
 #### 7 KEVIN WUZ HERE TOO
 #### 8
-#### 9 Github is really good 
+#### 9 GitHub is really awesome
 #### 10
 #### 11
 #### 12
 #### 13
 #### 14
-#### 15
+#### 15git
